@@ -2,10 +2,10 @@
 https://badcatgang.com/
 
 • original telegram url
-https://t.me/supercatmeme_ethbadcathero
+https://t.me/supercatchatbadcathero
 
 • original twitter url
-https://x.com/scatworld_eth
+https://x.com/Scat__X
 
 • new Name
 BadCat
